@@ -1,3 +1,4 @@
+### Quality Solutions Limited: Gladstone Rose:
 
 Determining the activity of activated bamboo charcoal, often evaluated by its adsorption capacity, can be achieved through various analytical methods. Below is a step-by-step outline of a standard chemical method, known as the iodine adsorption number (IAN) method. This method measures the amount of iodine adsorbed by the activated bamboo charcoal and is commonly used as an indicator of its activity.
 
